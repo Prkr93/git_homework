@@ -4,3 +4,5 @@
 
 1.) Calendaring - trying to keep to it and improving on it every week.
 2.) Reviewing the previous lesson and looking over next lesson.
+
+Ming-Ching! He's been so supportive over the years and continues to be the most positive influence in my life. Without him, I wouldn't be going to Turing, and it's great to have a friend I can vent to about life, work, or school.
